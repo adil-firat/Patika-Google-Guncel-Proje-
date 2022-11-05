@@ -1,1 +1,1 @@
-# Patika-Google-Guncel-Proje-
+# Patika Google Guncel Proje-
